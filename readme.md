@@ -1,1 +1,1 @@
-#pari dammmit alok (hate)
+#pari dammmit alok hate
